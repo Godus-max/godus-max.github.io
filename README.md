@@ -1,0 +1,1 @@
+# godus-max.github.io
